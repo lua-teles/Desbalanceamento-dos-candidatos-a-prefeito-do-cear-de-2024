@@ -1,0 +1,1 @@
+# Desbalanceamento-dos-candidatos-a-prefeito-do-cear-de-2024
